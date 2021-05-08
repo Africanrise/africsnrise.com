@@ -1,1 +1,1 @@
-# africsnrise.com
+# africanrise.com
